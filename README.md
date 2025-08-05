@@ -13,6 +13,11 @@
 <br>
 <br><img src="https://dividers.crd.co/assets/images/gallery04/e0dbbc7f.gif?v=05d33f91" width="350px">
 <br>
+<br> — 𝗕𝗬𝗜 .*.ᐟ.ᐟ
+<br> Probably AFK in-game if I'm not doing anything, always shoot a whisper to int !!
+<br> Free to C+H if I'm alone by myself, otherwise, nada :)
+<br> <a href="https://macs-dni-list.carrd.co">! My DNI list! Please read ! <3</a>
+<br>
 <br>𝘞𝘩𝘦𝘳𝘦 𝘵𝘰 𝘧𝘪𝘯𝘥 𝘮𝘦 !
 <br> <a href="https://x.com/rabb1t_crypt">Twitter</a> | <a href="https://macready.atabook.org">Atabook</a> | <a href="https://spacehey.com/pullthetriggerr">SpaceHey</a>
 <br>
